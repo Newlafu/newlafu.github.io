@@ -1,0 +1,1 @@
+# newlafu.github.io
